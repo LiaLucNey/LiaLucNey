@@ -3,7 +3,7 @@
 - 👀 I’m interested in building
 - 🌱 I’m currently learning To script
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me 1H Hollywood Aveune
+- 📫 How to reach me 876-307-9000
 - 😄 Pronouns:her,she,he,boy
 - ⚡ Fun fact: I have VIP In the strongest battlegrounds
 
